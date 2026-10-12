@@ -1,1 +1,0 @@
-# astronomiya-11
